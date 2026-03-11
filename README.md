@@ -1,2 +1,3 @@
-# ocs
-My master list of all my OCs :)
+# OCs
+
+List of all my OCs can be found on the website :)
